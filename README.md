@@ -1,0 +1,1 @@
+# Pedana_Rotante_Scansione
